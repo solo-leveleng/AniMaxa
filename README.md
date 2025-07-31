@@ -1,0 +1,2 @@
+# AniMaxa
+chiroyli qilish
